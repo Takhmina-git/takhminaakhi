@@ -1,2 +1,2 @@
 # takhminaakhi
-takhminaift
+takhminal
